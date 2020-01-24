@@ -7,7 +7,7 @@ The Grand Canyon is probably the most significant natural feature in the USA
 2. Grand Canyon overwhelms our senses through its immense size.
 
  To know more about this place [link](https://www.britannica.com/place/Grand-Canyon-National-Park)
-![image](https://photos.smugmug.com/photos/i-QDxCrM3/0/L/i-QDxCrM3-L.jpg)(image taken from everything-everywhere.com)
+![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/ana-filipa-neves-2941.jpg)(image taken from metadornetwork.com)
 
 ## Yellow Stone National Park
 1. Yellowstone National Park is famous for its geysers and hot springs. The park contains about half the world's geysers.
