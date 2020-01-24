@@ -6,7 +6,7 @@ The Grand Canyon is probably the most significant natural feature in the USA
 1. Unique combinations of geologic color and erosional forms decorate a canyon that is 277 river miles (446km) long, up to 18 miles (29km) wide, and a mile (1.6km) deep.
 2. Grand Canyon overwhelms our senses through its immense size.
 
- To know more about this place [link](https://www.britannica.com/place/Grand-Canyon-National-Park)
+   To know more about this place [link](https://www.britannica.com/place/Grand-Canyon-National-Park)
  ![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/ana-filipa-neves-2941.jpg)
  image taken from [url](https://photos.smugmug.com/photos/i-QDxCrM3/0/L/i-QDxCrM3-L.jpg)
 
@@ -21,7 +21,7 @@ image taken from [url](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/568
 1. Yellowstone National Park is famous for its geysers and hot springs. The park contains about half the world's geysers.
 2. The world's most famous geyser, The Old Faithful Geyser, is in Yellowstone National Park. It also is a home to grizzly bears, wolves, bison and elk.
 
-To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yellowstone-national-park)
+   To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yellowstone-national-park)
 ![image](https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)image taken from [url](
  https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)
  
@@ -33,8 +33,9 @@ To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yello
 
 ## The Interstate Highway System,United States
 - The highway in Death Valley, California disappearing into the dis tance.
-- U.S. Interstate Highway System as really the most impressive building accomplishment of the United States of America.If you are driving   across America visiting the other wonders, you will use the extensive network of highways that connect every corner of the nation.It’s     impressive.
-  To know more click [Link](https://www.history.com/topics/us-states/interstate-highway-system)
+- U.S. Interstate Highway System as really the most impressive building accomplishment of the United States of America.
+- If you are driving across America visiting the other wonders, you will use the extensive network of highways that connect every corner   of the nation.It’s impressive.
+    To know more click [Link](https://www.history.com/topics/us-states/interstate-highway-system)
   ![image](https://photos.smugmug.com/photos/i-WrCkdL9/0/L/i-WrCkdL9-L.jpg)image source[url](https://photos.smugmug.com/photos/i-WrCkdL9/0/L/i-WrCkdL9-L.jpg)
   
 ## References
