@@ -20,8 +20,6 @@ To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yello
 ## Denali National Park
 - Denali National Park, located in Alaska, is home to the highest point in North America, Mount McKinley.
 - Mt. McKinley is actually one of the largest mountains in the world when measured from base to peak, and it’s a wonder.
-To know more interesting facts about this place click [Link](https://www.onlyinyourstate.com/alaska/facts-denali-national-park-ak/)
-
-![image](https://photos.smugmug.com/photos/i-zVdDDzF/0/L/i-zVdDDzF-L.jpg)
-
+  To know more interesting facts about this place click [Link](https://www.onlyinyourstate.com/alaska/facts-denali-national-park-ak/)
+![image](https://photos.smugmug.com/photos/i-zVdDDzF/0/L/i-zVdDDzF-L.jpg)image taken from  everything-everywhere.com)
 
