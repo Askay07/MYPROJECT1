@@ -7,15 +7,15 @@ The Grand Canyon is probably the most significant natural feature in the USA
 2. Grand Canyon overwhelms our senses through its immense size.
 
  To know more about this place [link](https://www.britannica.com/place/Grand-Canyon-National-Park)
- image source[url](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)
  ![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/ana-filipa-neves-2941.jpg)
  image taken from [url](https://photos.smugmug.com/photos/i-QDxCrM3/0/L/i-QDxCrM3-L.jpg)
 
 ## NIAGAARA FALLS,NEWYORK
 - Natural Wonder of the World.Perhaps New York's most famous natural site is Niagara Falls. 
 - It is one of the seven natural wonders of the world. The massive waterfalls are located on the border between the United States and Canada.
-![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)![image](https://www.visittheusa.com/sites/default/files/styles/hero_m_1300x700/public/images/hero_media_image/2017-03/Niagara%20Falls%20State%20Park_New%20York_20150710GH_0122_Web72DPI.jpg?itok=q3mQRRtZ)image taken from [url](
-https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)
+![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)                                           image source [url](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)
+![image](https://www.visittheusa.com/sites/default/files/styles/hero_m_1300x700/public/images/hero_media_image/2017-03/Niagara%20Falls%20State%20Park_New%20York_20150710GH_0122_Web72DPI.jpg?itok=q3mQRRtZ)
+image taken from [url](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/5683785766_b3ed8327a5_b.jpg)
 
 ## Yellow Stone National Park
 1. Yellowstone National Park is famous for its geysers and hot springs. The park contains about half the world's geysers.
