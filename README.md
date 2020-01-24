@@ -1,4 +1,4 @@
-##    NATURAL WONDERS OF AMERICA   
+#  NATURAL WONDERS OF AMERICA   
 America is just massive.It is home to spectacular deserts, mountain ranges, volcanic features, ancient forests, waterfalls, canyons, glaciers, caves, and swamps.
 
 ## Grand Canyon National Park
@@ -16,5 +16,11 @@ The Grand Canyon is probably the most significant natural feature in the USA
 To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yellowstone-national-park)
 ![image](https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)image taken from(
  https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)
+ 
+## Denali National Park
+- Denali National Park, located in Alaska, is home to the highest point in North America, Mount McKinley.
+- Mt. McKinley is actually one of the largest mountains in the world when measured from base to peak, and it’s a wonder.
+To know more interesting facts about this place click [Link](https://www.onlyinyourstate.com/alaska/facts-denali-national-park-ak/)
+![image](https://photos.smugmug.com/photos/i-zVdDDzF/0/L/i-zVdDDzF-L.jpg)
 
 
