@@ -10,11 +10,11 @@ The Grand Canyon is probably the most significant natural feature in the USA
 ![image](https://photos.smugmug.com/North-America/Arizona/Grand-Canyon/GMA8811/697087720_7azt7-X3.jpg)(image taken from everything-everywhere.com)
 
 ## Yellow Stone National Park
-1.Yellowstone National Park is famous for its geysers and hot springs. The park contains about half the world's geysers.
-1.The world's most famous geyser, The Old Faithful Geyser, is in Yellowstone National Park. It also is a home to grizzly bears, wolves, bison and elk.
+1. Yellowstone National Park is famous for its geysers and hot springs. The park contains about half the world's geysers.
+2. The world's most famous geyser, The Old Faithful Geyser, is in Yellowstone National Park. It also is a home to grizzly bears, wolves, bison and elk.
 
 To know more [link](https://www.doi.gov/blog/7-things-you-didnt-know-about-yellowstone-national-park)
-![image](https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)
-
+![image](https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)image taken from(
+ https://www.doi.gov/sites/doi.gov/files/uploads/YellowstoneNPNataliaOrniaSTECropped.jpg)
 
 
