@@ -7,7 +7,8 @@ The Grand Canyon is probably the most significant natural feature in the USA
 2. Grand Canyon overwhelms our senses through its immense size.
 
  To know more about this place [link](https://www.britannica.com/place/Grand-Canyon-National-Park)
- ![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/ana-filipa-neves-2941.jpg)image taken from [url] (https://photos.smugmug.com/photos/i-QDxCrM3/0/L/i-QDxCrM3-L.jpg)
+ ![image](https://d36tnp772eyphs.cloudfront.net/blogs/1/2017/02/ana-filipa-neves-2941.jpg)
+ image taken from [url](https://photos.smugmug.com/photos/i-QDxCrM3/0/L/i-QDxCrM3-L.jpg)
 
 ## NIAGAARA FALLS,NEWYORK
 - Natural Wonder of the World.Perhaps New York's most famous natural site is Niagara Falls. 
